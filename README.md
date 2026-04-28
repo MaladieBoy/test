@@ -1,1 +1,1 @@
-Hello world
+THANKS FOR VISITING
